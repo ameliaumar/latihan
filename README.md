@@ -1,1 +1,2 @@
-# latihan
+amelia S. umar
+tugas opensource
